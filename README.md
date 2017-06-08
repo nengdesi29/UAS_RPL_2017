@@ -1,2 +1,2 @@
 # UAS_RPL_2017
-# uas rpl_desi handayani_teknik informatika b 2014
+# UAS RPL_Desi Handayani_Teknik Informatika B 2014
